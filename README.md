@@ -38,4 +38,4 @@ obama seems to be the liar and elliot seems to be getting frammed
 
 
 video of elliot saying yotter is his friend
-https://github.com/LieutenantGst/welpimnotsure/blob/main/ScreenRecording_04-18-2026%2020-29-05_1.mp4
+https://github.com/LieutenantGst/helping-someone-out/raw/refs/heads/main/ScreenRecording_04-18-2026%2020-29-05_1.mp4
