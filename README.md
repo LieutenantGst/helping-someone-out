@@ -35,3 +35,7 @@ https://github.com/user-attachments/assets/4fb85331-a51f-43fa-89b8-80c6eafef199
 <img width="1033" height="359" alt="Discord_PxcrG12IsW" src="https://github.com/user-attachments/assets/7520ac26-ceff-4f8a-80df-a9f38506f794" />
 
 obama seems to be the liar and elliot seems to be getting frammed
+
+
+video of elliot saying yotter is his friend
+https://github.com/LieutenantGst/welpimnotsure/blob/main/ScreenRecording_04-18-2026%2020-29-05_1.mp4
