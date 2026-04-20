@@ -1,4 +1,4 @@
-# helping-someone-out
+# elliot vs obamafv beef (fortnite ogfn community)
 
 obamafv allegedly has a vps spammer for ogfn and elliot the creator of mintyai said it looked skidded and that now obamafv is trying to frame him by saying he sent some weird things known as CP
 
@@ -37,5 +37,17 @@ https://github.com/user-attachments/assets/4fb85331-a51f-43fa-89b8-80c6eafef199
 obama seems to be the liar and elliot seems to be getting frammed
 
 
-video of elliot saying yotter is his friend
-https://github.com/LieutenantGst/helping-someone-out/raw/refs/heads/main/ScreenRecording_04-18-2026%2020-29-05_1.mp4
+heres a video of more things
+
+
+https://github.com/user-attachments/assets/260fe699-34b2-4788-810d-235aa5289cd0
+
+
+
+Why i made this is because i went to elliot trying to see if he actually sent what he did and he said no and said all the messages obamafv was sending was ai but then qorveth said the things he did was a lie but he doxxed which was apparently false so yeah
+
+
+
+
+
+
